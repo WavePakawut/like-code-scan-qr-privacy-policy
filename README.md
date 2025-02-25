@@ -1,0 +1,1 @@
+# like-code-scan-qr-privacy-policy
